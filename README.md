@@ -2,4 +2,4 @@
 [![Solved.ac Profile](http://mazassumnida.wtf/api/generate_badge?boj=ks18491ec3116)](https://solved.ac/ks18491ec3116)<br>
 
 ##🎧 My Music - PLAY**
-    *  [(YouTube)](https://youtu.be/aetQU2gZS-A?si=59caHBzeHKhKi7Io)
+    *  [(YouTube)](https://youtu.be/knBSirap4sY?si=M0z8IAUQapXWQZrv)
